@@ -1,2 +1,2 @@
 # mywebsite
-web site
+https://idrissimohammed.wordpress.com/
